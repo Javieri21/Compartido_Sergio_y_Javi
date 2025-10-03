@@ -1,1 +1,1 @@
-Colaborador 1 Sergio
+Colaborador 1 Sergio Marco Izquierdo
